@@ -1,1 +1,0 @@
-# adomate-ads
